@@ -73,5 +73,4 @@ _Built 100% On Phone 📱 | KMEA Engineering College, Aluva | Useless Projects 3
 
 ---
 
-This is 100% ready for GitHub. Just add your 3 screenshots and push before 11:30 AM.
-
+I'm using phone so some mistakes are there plz forgive 
