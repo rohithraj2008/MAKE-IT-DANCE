@@ -73,4 +73,4 @@ _Built 100% On Phone 📱 | KMEA Engineering College, Aluva | Useless Projects 3
 
 ---
 
-I'm using phone so some mistakes are there plz forgive 
+I'm using phone so some mistakes are there plz forgive I don't have lap
